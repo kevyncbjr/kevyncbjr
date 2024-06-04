@@ -12,5 +12,6 @@ kevynrodrigo49@gmail.com
 
 @kevynrdg, Instagram e Twitter 
 
-![](https://media1.tenor.com/m/E44hWG10H8QAAAAd/toronto-raptors-vince-carter.gif)
 
+![](https://media1.tenor.com/m/5px0VT8v1WgAAAAC/slam-dunk-competition-vince-carter.gif
+)
