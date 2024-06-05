@@ -4,12 +4,13 @@ Meu nome é **Kevyn Rodrigo**
 
 - Estou estudando na [Alura](https://www.alura.com.br)
 - Estou aprendendo a linguagem Javascript 
-- ultilizo esse espaço para minha organização e compartilhamento dos meus projetos feitos
+- Ultilizo esse espaço para minha organização e compartilhamento dos meus projetos feitos
 
 ### Para conversar comigo 🌪️
 
-- Email: kevynrodrigo49@gmail.com 
+- kevynrodrigo49@gmail.com 
 - [Instagram](https://www.instagram.com/kevynrdg/)
+- [Twitter](https://x.com/kevynrdg)
 
 
 
