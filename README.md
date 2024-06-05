@@ -8,9 +8,9 @@ Meu nome é **Kevyn Rodrigo**
 
 ### Para conversar comigo 🌪️
 
-kevynrodrigo49@gmail.com 
+- Email: kevynrodrigo49@gmail.com 
+- [Instagram](https://www.instagram.com/kevynrdg/)
 
-@kevynrdg, Instagram e Twitter 
 
 
 ![](https://media1.tenor.com/m/5px0VT8v1WgAAAAC/slam-dunk-competition-vince-carter.gif
